@@ -1,5 +1,3 @@
-# Hello!
-
 ✨ National Junior Honor Society Member
 
 🌎 IB Ambassador
